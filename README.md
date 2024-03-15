@@ -1,4 +1,4 @@
-### angiesylvia
+### --!> **Discord**: [angiesylvia](https://discord.com/users/angiesylvia)
 
 <!--
 **erming81houte/erming81houte** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
